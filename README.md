@@ -1,0 +1,5 @@
+- Hi, I’m barnaman. Real name: Barnaba Gruszczyński
+- I like playing video games, i mean...
+- I’m currently learnig nothing. Im from 2008.
+- If you want something from me i guess there is my email: barnaba.gruszczynski@spoko.pl
+- My father left me whe-
